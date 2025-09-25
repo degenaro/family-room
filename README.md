@@ -65,8 +65,6 @@
 
 <a href="https://www.macys.com/shop/area-rugs/rugs-by-size/8x10-rugs/Brand,Rug_size/ADORN%20HAND%20WOVEN%20RUGS,8x10?id=190868">Macys Serape rugs, 8x10</a>
 
-<br>
-
 <a href="https://www.macys.com/shop/product/adorn-hand-woven-rugs-serapi-m0103-253-rug-collection?ID=23812169#BRAND,RUG_SIZE/ADORN%20HAND%20WOVEN%20RUGS,8x10">Macys Serape rug, 8x10, brown</a>
 
 <br>
